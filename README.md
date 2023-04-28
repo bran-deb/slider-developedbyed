@@ -1,1 +1,1 @@
-# slider-developedbyed
+# Slider Developedbyed
